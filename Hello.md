@@ -1,1 +1,3 @@
-We tend to think about gaining new skills like we think about winning the lottery:
+# ATTENDANCE SHEET FOR START.NG HND INTERNSHIP
+1. NDIBISI
+2. UBEZUO KELVIN
